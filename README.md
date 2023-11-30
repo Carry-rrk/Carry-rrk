@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Carry-rrk
 - 👀 
-- 🌱 I’m currently learning my college classes
+- 🌱 I'm learning.
 - 💞️ 
 - 📫 
 <!---
